@@ -5,7 +5,7 @@
 
 - 📫 Reach me at: **ankitbhuyans@gmail.com**
 
-- 📄 Connect with me at: [https://www.linkedin.com/in/4nkkkit/](https://www.linkedin.com/in/4nkkkit/)
-                        [https://www.twitter.com/4nkkkit](https://www.twitter.com/4nkkkit/)
-                        [https://g.dev/4nkkkit](https://g.dev/4nkkkit)
+- 📄 Connect with me at: [https://www.linkedin.com/in/cigsafterchole/](https://www.linkedin.com/in/cigsafterchole/)
+                        [https://www.twitter.com/cigsafterchole](https://www.twitter.com/cigsafterchole/)
+                        [https://g.dev/cigsafterchole](https://g.dev/cigsafterchole)
 - ⚡ Fun fact **I think I am funny**
